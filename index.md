@@ -6,3 +6,4 @@ Es braucht mehr, als reinen Speed um komplett zu sein.
 * Teamplayer
 * freundlich
 > Immer am Limit
+<img src="https://fotos.piqs.de/4/0/1/b/4/e05fd98a254c8ac79df87a5c39a81ae6.jpg"/>
