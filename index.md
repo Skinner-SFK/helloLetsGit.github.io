@@ -5,3 +5,4 @@ Es braucht mehr, als reinen Speed um komplett zu sein.
 * superschnell
 * Teamplayer
 * freundlich
+> Immer am Limit
